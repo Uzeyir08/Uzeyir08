@@ -1,1 +1,1 @@
-# Hi there, I'm Üzeyir 👋
+# Hi there, I'm Üzeyir
